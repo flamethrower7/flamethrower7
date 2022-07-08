@@ -18,4 +18,4 @@ For the more business savvy. Study drop-shipping. More importantly, if you are o
 My expertise is in fin-tech and energy markets if any of you want to partner with me, lets! I would love to help the art community through creating NFTs that arent glofied jpeg monetization schemes (I will discuss this next).
 
 
-Github has been purchased by Microsoft. Eventually, this means a new free open source site will need to be used (if we become important (:. Long way to go.
+Github has been purchased by Microsoft. Eventually, this means a new free open source site will need to be used (if we become important) (:. Long way to go.
