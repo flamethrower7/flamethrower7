@@ -41,6 +41,6 @@ I do realize many of you will receive this message from the following perspectiv
 
 I happen to be obsessed with Future, the rapper. I also love Lebron James and Tom Brady. In the event we succeed here and I 
 achieve some form of wealth creation, I will finance the production of What A Time to Be Alive 2 (Album), and Purple Reign 2 (Mixtape)... ENSURING
-that the GitHub community gets a lyrical shoutout. Maybe, just maybe, I will get GitHub tattooed (I have none - we can even do it on Lebron's The Shop") 
+that the GitHub community gets a lyrical shoutout. Maybe, just maybe, I will get GitHub tattooed (I have none - we can even do it on Lebron's "The Shop"- on HBO) 
 
 I will be drafting free creative business plans which leverage my previous ventures to help the coding community at large. For Free... My hope is that in exchange for the creative portion a faction of you will leverage my ideas technically to complete what I did not. And maybe, just maybe, help me see the above expanded into the digital universe.
