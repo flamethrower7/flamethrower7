@@ -33,9 +33,11 @@ II) corresponding app. Preferably in swift with same features.
 ******* I am fully committed to Project I but am more than capable of handling both projects. Capital allocation and business building go hand in hand*****
 ******* I need so much help but the compound effect on others will be substantial******
 🔥 🔥 🔥 🔥 🔥 🔥 🔥 🔥 🔥 
+ 
 
-design features and drawings may be added later subject to security clearance.
-I do not run out of ideas... helping me launch here will be the beggining
+I will be drafting free creative business plans which leverage my previous ventures to help the coding community at large. For Free... My hope is that in exchange for the creative portion a faction of you will leverage my ideas technically to complete what I did not. And maybe, just maybe, help me see the above expanded into the digital universe.
+
+I do realize many of you will receive this message from the following perspective: "Get your own hands dirty." Especially the coding savants. The fact is there is a finite time horizon to capitalize on this opportunity. And daily, that window gets smaller. Many of you have the foundational code I need on hand presently. There are three ways to "Get your hands dirty" one is physical (relationship building), one is imaginative, and the third is technical/digital. The first two battles were faught and won the trenches. I am open to running and updating collaborated scripts on my own but I posssess the other leg of what you may need, potentially. If you have foundational code which can take me to market today, why not partner? The exchange can be negotiated one way or another.
 
 I happen to be obsessed with Future, the rapper. I also love Lebron James and Tom Brady. In the event we succeed here and I 
 achieve some form of wealth creation, I will finance the production of What A Time to Be Alive 2 (Album), and Purple Reign 2 (Mixtape)... ENSURING
